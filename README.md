@@ -1,0 +1,2 @@
+# MinyanNow
+Arrange Jewish prayer  
